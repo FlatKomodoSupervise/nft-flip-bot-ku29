@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft flip bot with automatic nft flip bot | gas-fee-estimation + royalty-calculator. Featuring gas-fee-estimation and royalty-calculator, it's the best choice for
 
 
 
